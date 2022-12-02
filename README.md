@@ -1,6 +1,6 @@
-# Jarot
+# NandaDEV
 
-<img src="https://telegra.ph/file/696076406bf2516adb1fd.jpg" width="200" height="200"/>
+<img src="https://i.top4top.io/p_2527r4jdu0.jpg" width="200" height="200"/>
 
 
 # NOTE: DILARANG MENJUAL BELIKAN SCRIPT 
